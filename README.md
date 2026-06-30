@@ -39,5 +39,18 @@ Today, I explored "Neuroplasticity"—the brain's ability to reorganize itself b
 
 ### 🚀 Key Takeaway for Today
 "My brain is a muscle that can be reshaped. With consistent effort, I have the power to unlearn old limitations and build a stronger, wiser mindset."
+# Day 4: The Psychology of Focus and the Pomodoro Technique
+
+## 📅 Date: June 30, 2026
+
+### 💡 Core Concept
+Today, I looked into the psychology of sustained attention and the "Pomodoro Technique." Our brains are not designed to maintain intense focus for hours without a break. This time-management method uses a timer to break work down into intervals, traditionally 25 minutes in length, separated by short 5-minute breaks. It works by keeping the mind fresh, reducing cognitive fatigue, and preventing procrastination by making tasks feel manageable.
+
+### 🧠 Personal Reflection & Observations
+* **Overcoming Friction:** The hardest part of any task is often just starting it. Telling myself that I only need to focus for 25 minutes drastically lowers the mental barrier and resistance to getting to work.
+* **The Power of Rest:** I noticed that taking an actual break (stepping away from screens) during those 5 minutes acts like a mental reset, allowing my brain to recharge instead of burning out early in the day.
+
+### 🚀 Key Takeaway for Today
+"Productivity isn't about running a marathon without stopping; it's about managing my mental energy through deliberate focus and intentional rest."
 
 
